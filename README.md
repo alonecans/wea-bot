@@ -1,3 +1,3 @@
 ## Tutorial Instalation
 
-Instagram : thenay_xploit_
+Instagram : @thenay_xploit_
